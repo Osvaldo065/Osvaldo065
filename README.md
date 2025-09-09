@@ -1,5 +1,5 @@
 # 💫 SOBRE MIM:
-🔭 Estudante de Analise e Desenvolvimento de Sistemas<br>🤝 Apaixonado pelo mundo Tech<br>🌱Desenvolvedor em construção<br>⚡Aprender nunca é demais, pois o conhecimento é uma jornada constante
+🔭 Estudante de Analise e Desenvolvimento de Sistemas<br>🤝 Apaixonado pelo mundo Tech<br>⚡Aprender nunca é demais, pois o conhecimento é uma jornada constante
 
 
 ## 🌐 REDE SOCIAL:
